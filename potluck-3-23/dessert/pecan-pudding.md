@@ -1,0 +1,5 @@
+1. Preheat oven to 160°C. Grease a 25cm (1.25L capacity) round baking dish and line the base and side with baking paper (the lining here is optional).
+2. Spread both sides of the bread with butter and cut each slice in half widthwise. Set aside.
+3. Place the eggs and sugar in a large bowl and whisk until combined, then stir in cocoa and half of the chocolate.
+4. Place the cream, vanilla and orange zest in a small saucepan over medium-high heat and bring just to a simmer. While stirring gently with a whisk, pour the hot cream mixture over the egg mixture and stir continuously until the chocolate has melted. Stir in the milk to cool the mixture, strain through a fine sieve and set aside.
+5. Arrange bread upright in prepared pan, sprinkling pecans, sultanas and remaining chocolate between each piece. Pour chocolate cream mixture over, making sure all bread is coated. Set aside for 15-20 minutes for bread to soak up mixture. Bake for 35-40 minutes until edges are set but centre has a wobble. Remove from oven and set aside to cool slightly. Dust with cocoa and serve with ice cream.
